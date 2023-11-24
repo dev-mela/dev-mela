@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dev-mela
+- 👋 Hi, I’m @Melaku
 - 📫 You can reach me by email : melakumuka92@gmail.com
 
 <!---
